@@ -133,7 +133,7 @@ Planet Type: Serengetian
 **Ayush Pandey**  
 Machine Learning & Astrophysics Enthusiast  
 🔭 Focus: AI for Space Science and Planetary Research  
-📫 [LinkedIn / GitHub links can be added here]
+📫 grunchie1801@gmail.com
 
 ---
 
